@@ -1,0 +1,1 @@
+# USPITAs_Quantamental2022
